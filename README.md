@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @5372011
-- 👀 I’m interested in blue god
-- 🌱 I’m currently learning iapp 
+- 🤙 I’m interested in blue god my friend
+- 😎 I’m currently learning iapp a app
 
 <!---
 5372011/5372011 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
